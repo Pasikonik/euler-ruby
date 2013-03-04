@@ -1,4 +1,1 @@
-Zadania z projektu Eulera ale jak to
-i oto nastały gruntowne zmiany
-halo halo jsdhksjfhmsnfbmwefkjug
-tralalalalala
+Zadania z projektu Eulera
