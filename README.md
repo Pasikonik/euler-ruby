@@ -1,1 +1,1 @@
-Zadania z projektu Eulera
+Zadania z projektu Eulera!
